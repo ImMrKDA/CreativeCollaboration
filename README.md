@@ -1,6 +1,6 @@
-#WEB14202: Creative Collaboration
+# WEB14202: Creative Collaboration
 
-##Kevin Díaz
+## Kevin Díaz
 
 **Student No:** 96454416
 
@@ -8,15 +8,15 @@
 
 **Unit Code:** WEB14102
 
-###Introduction
+### Introduction
 
 In this term I've worked in two different projects. The first project was about rebranding a charity. We had to look at their social media, website and images. The second project was about creating an online image library.
 
-###Important note
+### Important note
 
 I was supposed to do both projects with the same group. I started with team 5 and I did the first project with them but I ended up with team 2 doing the second project due to the fact that the other web media student from team 2 left and I had replace him. The reason I'm saying this is because, my formative presentation link will be with team 5 and my summative presentation link will be with team 2.
 
-###Links
+### Links
 
 **Presentatios**
 
