@@ -14,7 +14,7 @@ In this term I've worked in two different projects. The first project was about 
 
 ### Important note
 
-I was supposed to do both projects with the same group. I started with team 5 and I did the first project with them but I ended up with team 2 doing the second project due to the fact that the other web media student from team 2 left and I had replace him. The reason I'm saying this is because, my formative presentation link will be with team 5 and my summative presentation link will be with team 2.
+I was supposed to do both projects with the same group. I started with team 5 and I did the first project with them but I ended up with team 2 doing the second project due to the fact that the other web media student from team 2 left and I had to replace him. The reason I'm saying this is because, my formative presentation link will be with team 5 and my summative presentation link will be with team 2.
 
 ### Links
 
